@@ -2,7 +2,7 @@
 
 ## [[Catherine of Aragon]] 1509 - 1533 (annulled)
 
-## [[Anne Boleyn]
+## [[Anne Boleyn]] 1533 - 1536 (beheaded)
 
 ## [[Jane Seymour]]
 
