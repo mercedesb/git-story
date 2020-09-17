@@ -6,7 +6,7 @@
 
 ## [[Jane Seymour]] 1536 - 1537 (died after childbirth)
 
-## [[Anne of Cleves]
+## [[Anne of Cleves]] 1540 - 1540 (annulled)
 
 ## [[Catherine Howard]
 
