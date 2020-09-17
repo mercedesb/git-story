@@ -10,5 +10,4 @@
 
 ## [[Catherine Howard]] 1540 - 1542 (beheaded)
 
-## [[Catherine Parr]]
-
+## [[Catherine Parr]] 1543 - 1547 (widowed upon Henry's death)
