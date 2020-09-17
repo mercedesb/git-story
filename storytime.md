@@ -4,7 +4,7 @@
 
 ## [[Anne Boleyn]] 1533 - 1536 (beheaded)
 
-## [[Jane Seymour]]
+## [[Jane Seymour]] 1536 - 1537 (died after childbirth)
 
 ## [[Anne of Cleves]
 
