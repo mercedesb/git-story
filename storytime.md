@@ -8,6 +8,7 @@
 
 ## [[Anne of Cleves]] 1540 - 1540 (annulled)
 
-## [[Catherine Howard]
+## [[Catherine Howard]] 1540 - 1542 (beheaded)
 
 ## [[Catherine Parr]]
+
